@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @isomiesniksu
 - 👀 I’m interested in ladies
-- 🌱 I’m currently learning poland 
+- 🌱 I’m currently learning polish
 - 💞️ I’m looking to collaborate with johnny sins
 - 📫 How to reach me. In poland.
 
